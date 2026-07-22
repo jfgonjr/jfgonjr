@@ -1,4 +1,4 @@
-# Hi, I'm José Francisco 👋
+# Hi, I'm José Francisco 🌸
 
 🎓 Student of **Instrumentation, Automation & Robotics** and **Science & Technology** at UFABC (2024–2029)
 
